@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Shanib20
+- 👋 Hi, I’m Shanib
 - 👀 Student (LPU,pnjb)
 - 🌱 +91-9633411055
